@@ -16,4 +16,4 @@ Welcome to Speed Bot!
 
 ## Contact Us
 
-If you have any questions about these Terms of Service, please contact us at [Your Email Address].
+If you have any questions about these Terms of Service, please contact us at itznotrv@gmail.com.
